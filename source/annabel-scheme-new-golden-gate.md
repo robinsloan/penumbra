@@ -20,14 +20,6 @@ July 2020</p>
 
 <small>The burrito cannons blared at noon</small>, and into the sky above the city a fusillade of foil tubes went sailing: carnitas, carne asada, veggie supreme. They traced high glinting parabolas, hanging perfectly still at the apex, then accelerating earthward until their napkin-parachutes deployed. Pedestrians turned, arms outstretched. Cyclists pulled over; the moving catch, though tempting, was nearly impossible.
 
-## The Woman Who Vanished
-
-<small>The burrito cannons blared at noon</small>, and into the sky above the city a fusillade of foil tubes went sailing: carnitas, carne asada, veggie supreme. They traced high glinting parabolas, hanging perfectly still at the apex, then accelerating earthward until their napkin-parachutes deployed. Pedestrians turned, arms outstretched. Cyclists pulled over; the moving catch, though tempting, was nearly impossible.
-
-## The Woman Who Vanished
-
-<small>The burrito cannons blared at noon</small>, and into the sky above the city a fusillade of foil tubes went sailing: carnitas, carne asada, veggie supreme. They traced high glinting parabolas, hanging perfectly still at the apex, then accelerating earthward until their napkin-parachutes deployed. Pedestrians turned, arms outstretched. Cyclists pulled over; the moving catch, though tempting, was nearly impossible.
-
 In the old days, you'd use the phone, call in your order like an artillery scout, shouting your cross streets and hoping for the best. But now the ordering and targeting is all done with software, the burritos guided by miniscule GPS chips. If you return one to the taqueria they give you a free agua fresca.
 
 Every day, Stella Pajunas caught her lunch on the sidewalk in front of Alta Bay City Development headquarters. As the chief executive of the ABCD, she didn't have to catch it herself; she could have sent an underling scurrying to the sidewalk. But Stella Pajunas was smart. Her daily appearance marked her as a woman of the people.
